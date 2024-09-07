@@ -24,7 +24,8 @@ Here are some ideas to get you started:
 🎉 感谢你的到访，希望你在这里能找到你需要的东西！
 
 ▶️**新人[Youtuber](https://www.youtube.com/@yixiu001)**，需要您的支持，请务必帮我**点赞**、**关注**、**打开小铃铛**，***十分感谢！！！*** ✅
-  
+🎁 不要只是下载或Fork。请 **follow** **我的[GitHub](https://github.com/yixiu001)**、给我所有项目一个 **Star** 星星（拜托了）！你的支持是我不断前进的动力！ 💖
+
 🎁 **你的支持是我不断前进的动力！** 💖
 
 <details><summary><strong> [点击展开] 赞赏支持 ~🧧</strong></summary>
@@ -34,13 +35,9 @@ Here are some ideas to get you started:
 
 </details>
 
-➖➖➖➖➖➖➖➖➖➖➖➖➖
-
-▶️ `新人`[YouTube](https://www.youtube.com/channel/UCMtXiCoKFrc2ovAGc1eywDg/) 需要您的支持，请务必帮我`点赞`、`关注`、`打开小铃铛`，十分感谢！！！ ✅
-
-🎁 不要只是下载或Fork。请 `follow` 我的[GitHub](https://github.com/yixiu001)、给我所有项目一个 `Star` 星星（拜托了）！你的支持是我不断前进的动力！ 💖
 
 ➖➖➖➖➖广告位➖➖➖➖
+
 【红杏加速器】优惠机场,专属全场套餐5折,低至5元左右222G,数量有限,先到先得!!!
 
 点击官网[【注册地址】](https://hongxingdl.com/web/#/login?code=fOEo9d4m)注册
